@@ -1,1 +1,3 @@
-# DEVOIR
+Nom:MANUEL JAY EMMERY GNAMALENGOUNGOU NDJOYE
+ID: OBSY6
+Email: jaymanuelemery@gmail.com
